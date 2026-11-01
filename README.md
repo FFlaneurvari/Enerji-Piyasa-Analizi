@@ -1,1 +1,0 @@
-# Enerji-Piyasas-Analizi
